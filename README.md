@@ -13,5 +13,5 @@ If You Like These Are My Social Network Accounts🤓:
  - Twitter: https://twitter.com/Minh7074
  - Twitch: https://www.twitch.tv/mk7182
  - docs.microsoft: https://docs.microsoft.com/en-us/use
-- (these don't have anything I just use them for fun)
+-(these don't have anything I just use them for fun)
 - answer: https://forms.gle/3LVZevw1RMw46BsP7
