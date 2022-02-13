@@ -12,9 +12,9 @@ If You Like These Are My Social Network Accounts🤓:
  - instagram: https://www.instagram.com/mk70718/
  - Twitter: https://twitter.com/Minh7074
  - Twitch: https://www.twitch.tv/mk7182
--(these don't have anything I just use them for fun)
+ - (these don't have anything I just use them for fun)
 - answer: https://forms.gle/dFvsjUhkkyNa5LJm7
 ---------------------------
 ```
-Hello Guys
+Hello Guys 
 ```
